@@ -54,3 +54,37 @@
 
 
 ## Resources for (Design) Knowledge
+[The National Gallery: A Closer Look Series](https://www.nationalgallery.co.uk/products/art-books-series-a-closer-look)<br><br>
+
+[Type -  A Visual History of Typefaces and Graphic Style 1628-1958](https://www.taschen.com/pages/de/catalogue/graphic_design/all/44618/facts.type_eine_illustrierte_geschichte_der_schriftarten_und_grafischen_stile.htm)<br><br>
+
+[TASCHEN: FUSE Magazin](https://www.taschen.com/pages/de/catalogue/graphic_design/all/06768/facts.fuse_120.htm)<br>
+[TASCHEN: History of Information Graphics](https://www.taschen.com/pages/de/catalogue/graphic_design/all/03435/facts.history_of_information_graphics.htm)<br>
+[TASCHEN: Ernst Haeckel](https://www.taschen.com/pages/de/catalogue/classics/all/43949/facts.ernst_haeckel_40th_anniversary_edition.htm)<br>
+[TASCHEN: History of Graphic Design 1890-1959](https://www.taschen.com/pages/de/catalogue/graphic_design/all/04678/facts.geschichte_des_grafikdesigns_band_1_18901959.htm)<br>
+[TASCHEN: History of Graphic Design 1960-today](https://www.taschen.com/pages/de/catalogue/graphic_design/all/01177/facts.geschichte_des_grafikdesigns_band_2_1960_bis_heute.htm)<br><br>
+
+[The Decolonial Atlas](https://decolonialatlas.wordpress.com/)<br><br>
+
+[City Beautiful](https://www.youtube.com/channel/UCGc8ZVCsrR3dAuhvUbkbToQ/videos)<br><br>
+
+
+[Lindsay Ellis](https://www.youtube.com/c/LindsayEllisVids/videos)<br>
+[Lindsay Ellis: The Whole Plate](https://www.youtube.com/playlist?list=PLJGOq3JclTH8J73o2Z4VMaSYZDNG3xeZ7)<br>
+[Nerdwriter1](https://www.youtube.com/user/Nerdwriter1/videos)<br>
+[Nerdwriter1: The Florida Project Should've Been Nominated](https://www.youtube.com/watch?v=rXbKeHAoA84)<br>
+[Nerdwriter1: Children of Men: Don't Ignore The Background](https://www.youtube.com/watch?v=-woNlmVcdjc)<br>
+[Nerdwriter1: Las Meninas: Is This The Best Painting In History?]https://www.youtube.com/watch?v=WKRKrpz09Fk)<br>
+[Every Frame a Painting](https://www.youtube.com/c/everyframeapainting/videos)<br>
+[Every Frame a Painting: Snowpiercer - Left or Right](https://www.youtube.com/watch?v=X05TDsoSg2Y)<br>
+[Every Frame a Painting: Edgar Wright - How to do Visual Comedy](https://www.youtube.com/watch?v=3FOzD4Sfgag)<br><br>
+
+[Abstract: The Art of Design](https://en.wikipedia.org/wiki/Abstract:_The_Art_of_Design)<br><br>
+
+[Mouvo: Motion Graphics Conference](https://mouvo.cz/)<br><br>
+
+[Neusprech](https://neusprech.org/)
+
+
+
+
