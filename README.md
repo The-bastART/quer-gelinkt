@@ -74,7 +74,7 @@
 [Nerdwriter1](https://www.youtube.com/user/Nerdwriter1/videos)<br>
 [Nerdwriter1: The Florida Project Should've Been Nominated](https://www.youtube.com/watch?v=rXbKeHAoA84)<br>
 [Nerdwriter1: Children of Men: Don't Ignore The Background](https://www.youtube.com/watch?v=-woNlmVcdjc)<br>
-[Nerdwriter1: Las Meninas: Is This The Best Painting In History?]https://www.youtube.com/watch?v=WKRKrpz09Fk)<br>
+[Nerdwriter1: Las Meninas: Is This The Best Painting In History?](https://www.youtube.com/watch?v=WKRKrpz09Fk)<br>
 [Every Frame a Painting](https://www.youtube.com/c/everyframeapainting/videos)<br>
 [Every Frame a Painting: Snowpiercer - Left or Right](https://www.youtube.com/watch?v=X05TDsoSg2Y)<br>
 [Every Frame a Painting: Edgar Wright - How to do Visual Comedy](https://www.youtube.com/watch?v=3FOzD4Sfgag)<br><br>
